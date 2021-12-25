@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @driftxchange
-- 👀 I’m interested in crypto (XRP,XLM & XDC)
+- 👀 I love crypto/NFTs and Stellar Community
 - 🌱 I’m currently learning the crypto world
-- 💞️ I’m looking to collaborate on promotion
+- 💞️ I’m looking to change the NFT World in the best possible way
 - 📫 How to reach me driftxchange@protonmail.com
 
 <!---
